@@ -1,5 +1,5 @@
 • Dauer: 1:24:35  
-• Thomas Hübner (heißt eig. Thomas Haak) ist direkt zu Beginn in der Sendung (*Clueso heißt zufällig auch Thomas Hübner, Anm. d. Red.*)  
+• Thomas Hübner (heißt eig. Thomas Haak) ist direkt zu Beginn in der Sendung (*Clueso heißt zufällig auch Thomas Hübner, Anm. d. Red*)  
 • Auswertung der Bundestagswahl (Nichteinzug FDP) und Philipp Röslers Rücktritt  
 • Olli ist gespannt auf das Finale von Breaking Bad – kurzes Gespräch über die Serie  
 • Auswertung der gestrigen Supertalent-Sendung  
@@ -10,8 +10,8 @@
 • Jan fühlte sich bei Party von einem Pfau erotisch angezogen  
 • Jan erzählt von seinem Hamster (nachdem er gestorben ist, hat ihn die Mutter von Jan in durchsichtigem Geschenkpapier mumifiziert, Jan hat ihn Jahre später gefunden)  
 • Hörer kommt live in die Sendung (Frank), will mit Olli & Jan ein Spiel spielen, wird aber relativ schnell wieder rausgeworfen  
-	o Hat beim Hurricane Festival gearbeitet und Elton getroffen  
-	o Redet mit Jan & Olli über die FDP  
+    - Hat beim Hurricane Festival gearbeitet und Elton getroffen  
+    - Redet mit Jan & Olli über die FDP  
 • Jan & Olli sagen vorher: AFD gibt es in 4 Jahren nicht mehr (Minute 37:30)  
 • Jan nennt Campino “Calippo”  
 • Dritte Anruferin: Sibylle Berg – Will wissen, wieso Jan sich so in die FDP verbissen hat (Schlussfolgert Nächstenliebe) und redet über Liebe zu Tieren (Sagt, dass sie sexuell von toten Tieren angezogen wird)  

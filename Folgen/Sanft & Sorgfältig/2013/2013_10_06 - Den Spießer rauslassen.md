@@ -2,11 +2,11 @@
 • Olli ist zu Beginn allein, Jan hat den Raum verlassen (technische Probleme)  
 • Die gestrige Wetten, dass..?-Folge wird diskutiert  
 • Olli will ein bisschen rummeckern & den Spießer raushängen lassen  
-	o Jan regt sich über Hunde in öffentlichen Einrichtungen auf  
-	o Jan regt sich über Leute in Deutschland auf, die für rumänische Hunde protestieren  
-	o Olli regt sich über Biertrinken in der Öffentlichkeit auf  
-	o Olli regt sich über Handyclips am Ohr auf  
-	o Olli hasst Umarmungen  
+    - Jan regt sich über Hunde in öffentlichen Einrichtungen auf  
+    - Jan regt sich über Leute in Deutschland auf, die für rumänische Hunde protestieren  
+    - Olli regt sich über Biertrinken in der Öffentlichkeit auf  
+    - Olli regt sich über Handyclips am Ohr auf  
+    - Olli hasst Umarmungen  
 • Erster Anrufer: Jürgen – Regt sich über den Ausdruck „kann man nicht vergleichen“ auf, sagt danach irgendetwas Bizarres wegen Abtreibung  
 • Zweite Anruferin: Romy – Regt sich über andere Autofahrer auf  
 • Dritte Anruferin: Christina – Mag Wetten,dass..? nicht  
