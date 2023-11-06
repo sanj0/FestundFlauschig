@@ -1,6 +1,6 @@
 - Dauer: 1:00:01
 - Olli war wegen Paradontitis beim Zahnarzt und hat deswegen eine leicht komische Aussprache
-- Jan redet ironisch positiv über Putin (2023 schwierig) 
+- Jan redet ironisch positiv über Putin (2023 schwierig)
 - Jan erwähnt, dass er wie Joko und Klaas für Limonadenwerbung angefragt wurde
 - Olli plant große Fernsehoffensive (Neue Sendung: „Der Bordelltester“, „Kommissar Rex vs Unser Charlie)
 - Olli erfindet das Logistik-Unternehmen „Die Angst fährt mit“

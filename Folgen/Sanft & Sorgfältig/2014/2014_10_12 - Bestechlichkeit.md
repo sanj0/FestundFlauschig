@@ -10,4 +10,4 @@
 - Jan empfiehlt Fargo (Staffel 1), Olli hat kein Interesse
 - Jan: „Podcast – neumodisch, Logo gefällt ihm nicht“
 - Charles Dickie Dickinson wird zum ersten Mal erwähnt
-- SpiegelTV-Vorhersage + Gespräch über Stefan Aust 
+- SpiegelTV-Vorhersage + Gespräch über Stefan Aust

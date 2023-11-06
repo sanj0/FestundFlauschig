@@ -2,7 +2,7 @@
 - Jan hat Geburtstag, aber dessen Leitung ist zu Beginn ausgefallen (Judith Mikol redet stattdessen)
 - Olli wertet alleine Wetten, dass..? Aus (Joko und Klaas waren da)
 - Erster Anrufer: Lars – Redet über das Verheimlichen vom eigenen Geburtstag
-- Jan ist erst nach knapp 11 Minuten da (per Handy Mikrofon) und bekommt Glückwünsche von Olli 
+- Jan ist erst nach knapp 11 Minuten da (per Handy Mikrofon) und bekommt Glückwünsche von Olli
 - Olli spielt Geburtstagseinspieler von Frank Zander und lästert ein wenig über Judith Rakers
 - Olli erzählt von den 3 Wochen, die er im Auto geschlafen hat
 - Jan ist 33 Jahre alt geworden und Olli erzählt, was andere mit 33 schon geschafft haben. Jan redet über Pussy Riot

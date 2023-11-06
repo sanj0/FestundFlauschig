@@ -2,7 +2,7 @@
 - Thema der Sendung: Konsequenzen
 - Jan regt sich über den Austausch mit anderen prominenten Persönlichkeiten auf
 - Olli erzählt, wie Aerosmith vor dem Auftritt 2 Liter Kiwi Saft verlangt hat
-- Olli redet von seinem Interview mit Visa Vie 
+- Olli redet von seinem Interview mit Visa Vie
 - Jan würde gerne mal Fler kennenlernen
 - Einspieler Debüt: Andi Brehme kocht
 - Olli spricht über das vierstündige Abouchakar-Interview

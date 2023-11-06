@@ -6,7 +6,7 @@
 - Olli fragt die Community nach der Vervollständigung eines Witzes
 - Kachelmann-Fall wird ausgewertet
 - Olli möchte das Grünkohlessen absagen (wegen dem Wettbewerbscharakter)
-- Gespräch über die Serie „The Nick“ und Doku über Charité Berlin 
+- Gespräch über die Serie „The Nick“ und Doku über Charité Berlin
 	o	Oberarzt der Neurochirugie wird angesprochen, siehe anschließend Folge 126
 - Jan redet über eine Disney Doku
 - Olli „weint“ am Ende der Großen Fünf

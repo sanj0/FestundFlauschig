@@ -13,7 +13,7 @@
 - Olli wundert sich, wo Marek ist
 - Olli spielt selbst gesprochenen Anti-Kraftwerk Einspieler vor
 - Fünfter Anrufer: André – Kennt Jan von seiner Tour (s. Folge 54, baut Bäder)
-- Sechster Anrufer: Marek – Wird von Jan zur Russland-Ukraine Lage befragt, etwas miesepetrig 
+- Sechster Anrufer: Marek – Wird von Jan zur Russland-Ukraine Lage befragt, etwas miesepetrig
 - Jan liest Text von RadioEins über die beiden vor
 - Siebter Anrufer: Bjarne Mädel – Redet mit Olli übers HSV-Spiel
 - Achter Anrufer: Heinz Herrmann – Redet über Uwe Seeler

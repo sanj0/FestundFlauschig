@@ -6,7 +6,7 @@
 	- Folge ZaH vom 12.08.2012
 - Alle ZaH-Folgen vom 13.11.2011 bis einschließlich 11.03.2012 sind noch unbearbeitet
 - ZaH-Folge vom 19.08.2012 ist noch unbearbeitet
-  
+
 ***Sanft & Sorgfältig***:
 - Ausbaufähige S&S-Folgen:
 	- Folge vom 07.10.2012
