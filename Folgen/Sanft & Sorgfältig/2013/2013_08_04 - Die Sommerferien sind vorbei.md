@@ -2,7 +2,7 @@
 - Thema: Erster Tag nach den Sommerferien und Urlaubsgeschichten
 - Beide haben sich seit Beginn der Sommerpause nicht gesprochen und haben viel zu erzählen, Jan will in Berlin-Marzahn einen Kindergarten namens “Baby-Strich” eröffnen, Olli musste mit 15 Kindergärtnerinnen schlafen, um seinen eigenen Kindergartenplatz zu bekommen
 - Jan erzählt von seiner Zeit beim Jugend Roten Kreuz
-**- Jan erwähnt zum ersten Mal die “Be-Smart Academy”**
+- **Jan erwähnt zum ersten Mal die “Be-Smart Academy”**
 - Olli liest bizarre Kritik zur neuen Platte von Zweiraumwohnung vor
 - Olli erzählt, dass seine neue Platte z.T. in Malaga aufnehmen wird
 - Jan erzählt vom Besuch eines DFB-Pokalspiels

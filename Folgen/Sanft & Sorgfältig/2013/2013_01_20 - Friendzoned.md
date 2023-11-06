@@ -6,7 +6,7 @@
 - Olli erzählt Story, dass er sich bei Show von Kurt Krömer im Admiralspalast mit Glatzen zusammen mit Bela B um Sitzplätze gestritten hat (wollten sich prügeln), Olli hat aber als erstes dem anderen aufs Maul gehauen
 - Jan erzählt von Tiger-Abwehrmöglichkeiten
 - Jan erzählt, dass der Daumen der einzige Finger ist, der nachwächst (2-3 Wochen)
-**- Geistige Geburtsstunde der “Großen Fünf” - Olli erinnert sich, dass es volkstümlich fünf Großkratzen gibt**
+- **Geistige Geburtsstunde der “Großen Fünf” - Olli erinnert sich, dass es volkstümlich fünf Großkratzen gibt**
 - Jan erzählt zudem vom Rattenkönig (Zusammenbinden von Rattenschwänzen)
 - Olli & Jan imitieren Prominente (Grönemeyer, Lindenberg, Maffay)
 - Olli trägt Mokassins und Jan möchte die Wiedereinführung des Zylinders erreichen

@@ -1,6 +1,6 @@
 -	Dauer: 1:17:25 (längste Folge bisher)
 - Jan liest direkt zu Beginn der Sendung Abmahnung des Anwaltes von Joko & Klaas vor
-**- Neuer Titel: Sanft und Sorgfältig**
+- **Neuer Titel: Sanft und Sorgfältig**
 - Erster Aufritt des Verkehrsmoderators Tommy
 - Auswertung der aktuellen Wetten,dass..? Folge
 - Erster Anrufer: Markus – Mag es nicht, wenn Frauen ihn nicht zu Wort kommen lassen, fängt an wie Udo Lindenberg zu singen, wird weggedrückt
